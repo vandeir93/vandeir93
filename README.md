@@ -13,7 +13,13 @@ Sou natural de São Borja RS e moro em Santa Maria RS desde 2008. Tenho 32 anos,
 
 ---
  
+Meus hobbyes são: 
+- Jogar video-game
+- Jogar futebol
+- filmes
+- musica
 
+  ---
 
 
 
