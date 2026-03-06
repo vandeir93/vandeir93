@@ -7,6 +7,7 @@ Concilio trabalho e estudos e estou gostando muito desse início na área da tec
 *Eu estou aprendendo a programar e está sendo desafiador !*
 
 Porém, é preciso começar de algum lugar e sinto estar no lugar certo .
+---
 
 
 
