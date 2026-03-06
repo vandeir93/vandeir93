@@ -7,8 +7,10 @@ Concilio trabalho e estudos e estou gostando muito desse início na área da tec
 Eu estou aprendendo a programar e está sendo desafiador !
 
 Porém, é preciso começar de algum lugar e sinto estar no lugar certo .
+
 ---
 Sou natural de São Borja RS e moro em Santa Maria RS desde 2008. Tenho 32 anos, casado (praticamente :relaxed:) 
+
 ---
  
 
