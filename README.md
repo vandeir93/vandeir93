@@ -6,7 +6,7 @@ Meu nome é vandeir. Atualmente estou cursando técnico em informática na Unive
 
 Concilio trabalho e estudos e gostando muito desse início na área da técnologia.
 
-*Eu estou aprendendo a programar e está sendo desafiador*
+*Eu estou aprendendo a programar e está sendo desafiador !*
 
 
 
