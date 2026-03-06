@@ -1,4 +1,4 @@
-# Olá mundo!
+# :grin: Olá mundo!
 
 
 Meu nome é Vandeir. Atualmente estou cursando o curso técnico em informática na Universidade Federal de Santa Maria.  
